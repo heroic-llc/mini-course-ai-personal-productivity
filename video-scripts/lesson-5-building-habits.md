@@ -19,3 +19,5 @@ Stay curious. Try new things with A I regularly. Its capabilities keep expanding
 The goal is to make A I invisible. Like any good tool, you stop thinking about it and just use it naturally.
 
 You now have practical skills for personal A I productivity. Start small. Build habits. Reclaim your time.
+
+And if you want a home base for your A I journey, that's what writingIO is here for. Everything you need in one place. The best A I tools available, courses to keep you learning, and real humans behind it all who you can reach out to anytime. No jumping between platforms. No figuring it out alone. We started writingIO because we believe A I should be easy to use and accessible to everyone. Come see what we've built. We think you'll like it here.
